@@ -21,4 +21,10 @@ Hi, I'm Vaibhav, a B.Tech Computer Science student passionate about learning and
 ---
 [![](https://komarev.com/ghpvc/?username=VaibhavGuntupalli58&icon=5&color=7)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+
+
+https://github.com/user-attachments/assets/aa120bee-b502-4501-9262-b87c5b571f64
+
+
+
+
